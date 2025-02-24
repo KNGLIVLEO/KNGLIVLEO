@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KNGLIV
 - 👀 I’m interested in video games
 - 🌱 I’m currently learning about the elder scrolls 
-- 💞️ I’m looking to collaborate on pvp or pve for trials
+- 💞️ I’m looking to collaborate on pvp or pve also for trials
 - 📫 How to reach me im on xbox N/A
 
 <!---
